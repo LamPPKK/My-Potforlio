@@ -1,2 +1,2 @@
 # My-Potforlio
-Here is my CV https://Lamppkkk.github.io/My-Potforlio/
+Here is my CV https://Lamst99.github.io/My-Potforlio/
